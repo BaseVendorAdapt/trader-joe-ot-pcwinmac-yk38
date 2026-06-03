@@ -1,4 +1,4 @@
-# 
+# Premium trader joe trading bot scripts pour Mac OS | Open Source trader joe trading bot scripts pour PC Windows. Avec sécurité des clés privées et support de marge croisée — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
